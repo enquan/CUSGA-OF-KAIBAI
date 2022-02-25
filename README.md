@@ -12,3 +12,4 @@
 - 花生：猛1
 - xyjj：xy是（
 - SmileSlight：真正的猛1
+- nq：路人甲
